@@ -51,6 +51,7 @@ He asked, and so, Fyodor responded with 'till 4am, as always.'. Nikolai hit him 
 Little did they know, Dazai was peeking around from the corner, amused of their conversations, yet he hid, trying not to be caught, but Fyodor had long known he had hid in the quiet corners of the room.
 
 ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+
 More coming!
 
 
